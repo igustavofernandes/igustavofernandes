@@ -5,7 +5,7 @@ Um pouco sobre mim:
 - Apaixonado por Esporte ♟️🏆⚽
 - Gamer 🎮 
 - Guitarrista por hobbie 🎸
-- Estudante de Engenharia Elétrica | Desenvolvimento Web
+- *Estudante de Engenharia Elétrica | Desenvolvimento Web*
 
 
 
